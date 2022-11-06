@@ -7,4 +7,4 @@ Published books include-
 4. Centralize in Hindi - Amazon Kindle Direct Publishing, US - 2020
 5. Conversing Left to Right - Notion Press, Chennai,IND - 2022
 6. Altitudes Beyond Spirits - Amazon Kindle Direct Publishing,  US - 2020
-7. Musican is a published book also by Amazon KDP but not included in the list.
+7. Musicana is a published book also by Amazon KDP but not included in the list.

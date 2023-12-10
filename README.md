@@ -13,4 +13,4 @@ Published books include-
 10. Ratio and Rationale - Perception of Pakistan-China-India Nuclear Triangle. 2022, Notion Press, Chennai, IND
 11. Looking Astutely - Keynotes from Christiania. 2023, Amazon KDP
 12. A Pungent Pain in Your Thymus - Conversion of Hindus. Amazon KDP, 2023
-13. 
+13. Mind without matter - Shirking Intimate Psychiatric Portrayels. Amazon KDP, 2023

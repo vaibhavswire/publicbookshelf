@@ -11,6 +11,7 @@ Published books include-
 8. A Very Short Note on AYUSH systems, with a list of herbs, 2021, Notion Press, Chennai, IND
 9. Conversing Left to Right - Conservative Keynotes on Improving Policing in India. 2022, Notion Press, Chennai, IND
 10. Ratio and Rationale - Perception of Pakistan-China-India Nuclear Triangle. 2022, Notion Press, Chennai, IND
-11. Looking Astutely - Keynotes from Christiania. 2023, Amazon KDP
-12. A Pungent Pain in Your Thymus - Conversion of Hindus. Amazon KDP, 2023
-13. Mind without matter - Shirking Intimate Psychiatric Portrayels. Amazon KDP, 2023
+11. Restrainment and Arab Curses - Exploring India Centric Global Law Systems. Amazon KDP, 2023
+12. Looking Astutely - Keynotes from Christiania. 2023, Amazon KDP
+13. A Pungent Pain in Your Thymus - Conversion of Hindus. Amazon KDP, 2023
+14. Mind without matter - Shirking Intimate Psychiatric Portrayels. Amazon KDP, 2023

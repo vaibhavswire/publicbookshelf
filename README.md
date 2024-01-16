@@ -15,3 +15,4 @@ Published books include-
 12. Looking Astutely - Keynotes from Christiania. 2023, Amazon KDP
 13. A Pungent Pain in Your Thymus - Conversion of Hindus. Amazon KDP, 2023
 14. Mind without matter - Shirking Intimate Psychiatric Portrayels. Amazon KDP, 2023
+Published four papers included in these files as pdfs. On positive Zionism, African language preservation, Alzheimer's in Homeopathy, IndoChina from a common root.

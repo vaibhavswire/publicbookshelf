@@ -16,3 +16,4 @@ Published books include-
 13. A Pungent Pain in Your Thymus - Conversion of Hindus. Amazon KDP, 2023
 14. Mind without matter - Shirking Intimate Psychiatric Portrayels. Amazon KDP, 2023
 15. Published eight papers included as pdfs separately.
+16. Two research papers in PDF added.

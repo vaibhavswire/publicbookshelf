@@ -17,3 +17,4 @@ Published books include-
 14. Mind without matter - Shirking Intimate Psychiatric Portrayels. Amazon KDP, 2023
 15. Published eight papers included as pdfs separately.
 16. Three research papers in PDF added.
+17. Added one research paper in PDF.
